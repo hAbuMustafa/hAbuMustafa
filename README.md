@@ -1,4 +1,4 @@
-## Hosam Hamdy Mohammad 👋
+## Hosam Hamdy Mohammad (IPA: /ħʊsæːm ˈħæːmdiː mʊˈħæmmæd/)
 
 I'm a full stack web developer with endless passion for innovation, sympathy, inclusion, harmony, and clarity.
 
